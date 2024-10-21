@@ -3,7 +3,7 @@ Fastwin Register App Sign Up with your 10 digit mobile number, use 29147462491 a
 
 Signing Up in Fastwin app is very simple and easy process to do. You only need a active and operational mobile number . Below we have guided you how you can complete fastwin registration process.
 
-👉 [Fastwin Register](fastwinapk.com)
+👉 [Fastwin Register](https://www.fastwinapk.com)
 
 # Fastwin Invite Code
 
